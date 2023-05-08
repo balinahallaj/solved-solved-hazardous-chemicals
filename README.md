@@ -1,0 +1,3 @@
+Download Link: https://assignmentchef.com/product/solved-solved-hazardous-chemicals
+<br>
+In hundreds of thousands of homes across the country, family swimming pools and spas require sanitation and maintenance from the homeowners. A wide range of chemicals, including oxidizers, are used to keep these waters free of bacteria/bugs, chemically balanced, sparkling clear, and inviting to their users. Give some examples of the types of hazardous chemicals stored in homes (under counters, in garages/basements, in pump houses/sheds). What problems and dangerous situations can result from their improper storage and use (i.e., mixing them together, etc.)? What government agency and regulation(s) account for the labeling and registration of these products?
